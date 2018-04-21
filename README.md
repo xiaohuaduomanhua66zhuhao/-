@@ -2,11 +2,11 @@
 ![漫画列表](https://upload-images.jianshu.io/upload_images/11373205-89ab618162c3e8b5.png)
 
 ## 资源地址：
-### 韩漫完结:https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A
+#### 韩漫完结最新地址:https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A
 
-### 韩漫连载:https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ
+#### 韩漫连载最新地址:https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ
 
-### 3d漫画https://pan.baidu.com/s/1mj7EuAs
+#### 3d漫画https://pan.baidu.com/s/1mj7EuAs
 
 ## 漫画价格
 #### 韩漫：单部5元，5部以上4元一部，10部以上3元一部，所有连载中的漫画一次购买都包更新到完结(ps：一季算一部哦)
