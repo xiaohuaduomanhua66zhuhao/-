@@ -3,7 +3,8 @@
 
 ## 资源地址：
 #### 请点击下方文字
-[韩漫完结](https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A)</br>
+<font color=red>韩漫完结:https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A</font>  
+
 [韩漫连载](https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ)</br>
 [3d漫画](https://pan.baidu.com/s/1mj7EuAs)<br>
 
