@@ -1,3 +1,5 @@
+# 公众号暂时被封，不过任然可以购买哦，不影响的，有什么问题，及时联系我qq：643967355
+
 ## 漫画列表：
 ![漫画列表](https://upload-images.jianshu.io/upload_images/11373205-1eba9e677a713148.jpg)
 
