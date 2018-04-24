@@ -1,9 +1,12 @@
 # 资源公众号暂时被封，不过仍然可以购买哦，不影响的，有什么问题，及时联系我qq：643967355
 
+[删减版(点击查看)](http://y11.fanmugua.net )
+
+
 ## 漫画列表：
 ![漫画列表](https://upload-images.jianshu.io/upload_images/11373205-1eba9e677a713148.jpg)
 
-## 资源地址：
+## 无删减版资源地址(收费)：
 #### 韩漫完结最新地址:https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A
 
 #### 韩漫连载最新地址:https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ
@@ -19,10 +22,10 @@
 **单部购买地址**：https://www.2faka.com/merchant/DCCA47B69626 **不要直接点击，复制到浏览器里！否则微信无法支付！**</br>
 **多部购买请联系qq：643967355** 
 
-### 免费韩漫福利
+## 免费韩漫福利
 #### [她的高跟鞋（点击有资源)](https://pan.baidu.com/s/1PhwkJWBWE8EfzVyeeKRyWA)
 #### [不要碰我(家中俏萝莉)（点击有资源)](https://pan.baidu.com/s/1XLOGPtUY2pLcfn3Gkl5m1g)
-### 免费3d福利
+## 免费3d福利
 #### [汤米的假期（点击有资源)](https://pan.baidu.com/s/1yYv6l_l4rMcblhp1Z9Cqhg)
 #### [我的未婚妻（点击有资源)](https://pan.baidu.com/s/1OicYlzyy63Tqg4TDDlep7g)
 
