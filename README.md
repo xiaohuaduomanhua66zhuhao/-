@@ -24,7 +24,12 @@
 #### [不要碰我(家中俏萝莉)（点击有资源)](https://pan.baidu.com/s/1XLOGPtUY2pLcfn3Gkl5m1g)
 ### 免费3d福利
 #### [汤米的假期（点击有资源)](https://pan.baidu.com/s/1yYv6l_l4rMcblhp1Z9Cqhg)
-#### [我的未婚妻](https://pan.baidu.com/s/1OicYlzyy63Tqg4TDDlep7g)
+#### [我的未婚妻（点击有资源)](https://pan.baidu.com/s/1OicYlzyy63Tqg4TDDlep7g)
 
 ## 遇到问题
-如果购买的漫画遇到**白屏**、**损坏**、**密码错误**等问题请查看公众号底部菜单**帮助**按钮，如果仍无法解决您的问题，请第一时间联系qq：**643967355**
+[如何观看(点击查看)](http://url.cn/5CL2Mjk)
+[密码错误(点击解决)](http://url.cn/57JCRzH)
+[安卓手机白屏问题(点击解决)](http://url.cn/55XFkFT)
+[苹果手机PDF损坏(点击解决)](http://url.cn/5klYYsP)
+
+### 如果仍无法解决您的问题，请第一时间联系qq：**643967355**
