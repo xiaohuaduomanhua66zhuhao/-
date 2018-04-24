@@ -34,5 +34,6 @@
 [密码错误(点击解决)](http://url.cn/57JCRzH)</br>
 [安卓手机白屏问题(点击解决)](http://url.cn/55XFkFT)</br>
 [苹果手机PDF损坏(点击解决)](http://url.cn/5klYYsP)
+[找回密码](https://www.2faka.com/queryOrder)
 
 ### 如果仍无法解决您的问题，请第一时间联系qq：**643967355**
