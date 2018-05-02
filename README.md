@@ -7,7 +7,7 @@
 ![漫画列表](https://upload-images.jianshu.io/upload_images/11373205-1eba9e677a713148.jpg)
 
 ## 无删减版资源地址(收费)：
-#### 韩漫完结最新地址:https://pan.baidu.com/s/1qshF9JwdD5JQVjzPPmhT9A
+#### 韩漫完结最新地址:https://pan.baidu.com/s/145Vt8aM-Q5kHyFr61ws6RA
 
 #### 韩漫连载最新地址:https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ
 
