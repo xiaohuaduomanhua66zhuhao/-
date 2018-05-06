@@ -19,7 +19,7 @@
 
 ![套餐2](https://upload-images.jianshu.io/upload_images/11373205-80a4f9944a204e52.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
- > **PS：一次性购买套餐1+套餐2 再优惠10元  130带着150部！！！！！有意者qq：1982714212**
+  **PS：一次性购买套餐1+套餐2 再优惠10元  130带着150部！！！！！有意者qq：1982714212**
 
 
 **购买请联系qq：1982714212** 
