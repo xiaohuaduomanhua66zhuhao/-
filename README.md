@@ -22,8 +22,6 @@
   **PS：一次性购买套餐1+套餐2 再优惠10元  130带着150部！！！！！有意者qq：1982714212**
 
 
-**购买请联系qq：1982714212** 
-
 ## 免费韩漫福利
 #### [她的高跟鞋（点击有资源)](https://pan.baidu.com/s/1PhwkJWBWE8EfzVyeeKRyWA)
 #### [不要碰我(家中俏萝莉)（点击有资源)](https://pan.baidu.com/s/1XLOGPtUY2pLcfn3Gkl5m1g)
