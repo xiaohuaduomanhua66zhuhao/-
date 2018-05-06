@@ -1,23 +1,25 @@
-# 由于本人不满恶意竞争，现将所有漫画低价出售，100元100部无删减漫画！！
+# 由于本人不满恶意竞争，现将所有漫画低价出售！！
 
 # 有意者咨询qq：1982714212
 
 
-## 漫画列表：
-![漫画列表](https://upload-images.jianshu.io/upload_images/11373205-1eba9e677a713148.jpg)
+## 套餐1：单部5元，5部以上4元一部，10部以上3元一部，所有连载中的漫画一次购买都包更新到完结，以下100部漫画打包只需100元，就是便宜！！！
+![套餐1](https://upload-images.jianshu.io/upload_images/11373205-b83ca98a69614f90.jpg)
 
-## 无删减版资源地址(收费)：
+## 资源地址(有密码)：
 #### 韩漫完结最新地址:https://pan.baidu.com/s/145Vt8aM-Q5kHyFr61ws6RA
 
 #### 韩漫连载最新地址:https://pan.baidu.com/s/1WQCJcL66Jf_2RvjXUYOarQ
 
 #### 3d漫画：https://pan.baidu.com/s/1mj7EuAs
 
-## 漫画价格
-#### 韩漫：单部5元，5部以上4元一部，10部以上3元一部，所有连载中的漫画一次购买都包更新到完结(ps：一季算一部哦)
-#### 3d漫画单买价格同上，打包只需38元！！！
+## 套餐2 
+> **5月5日 新上50部完结韩漫  40元打包**
 
-## 购买地址
+![套餐2](https://upload-images.jianshu.io/upload_images/11373205-80a4f9944a204e52.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+ > ###PS：一次性购买套餐1+套餐2 再优惠10元  130带着150部！！！！！有意者qq：1982714212
+
 
 **购买请联系qq：1982714212** 
 
