@@ -7,7 +7,7 @@
 
 ## 套餐1：
 > **价格：单部5元，5部以上4元一部，10部以上3元一部，所有连载中的漫画一次购买都包更新到完结，以下100部漫画打包只需100元，就是便宜！！！
-![套餐1](https://upload-images.jianshu.io/upload_images/11373205-b83ca98a69614f90.jpg)
+![套餐1](https://upload-images.jianshu.io/upload_images/12061232-4d3346c628af5023.jpg)
 
 ## 资源地址(有密码)：
 #### 韩漫完结最新地址:https://pan.baidu.com/s/145Vt8aM-Q5kHyFr61ws6RA
@@ -19,7 +19,7 @@
 ## 套餐2 
 > **5月5日 新上50部完结韩漫  40元打包**
 
-![套餐2](https://upload-images.jianshu.io/upload_images/11373205-80a4f9944a204e52.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![套餐2](https://upload-images.jianshu.io/upload_images/12061232-d72c4159114ed233.png)
 
   **PS：一次性购买套餐1+套餐2 再优惠10元  130带着150部！！！！！有意者qq：3365632382**
 
