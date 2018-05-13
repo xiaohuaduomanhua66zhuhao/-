@@ -16,7 +16,6 @@
 
 #### 3d漫画：https://pan.baidu.com/s/1mj7EuAs
 
-#### 单部购买地址：http://www.12ii.net/list/2xJeu 请将链接复制到浏览器中打开，否则无法支付
 
 ## 套餐2 
 > **5月5日 新上50部完结韩漫  40元打包**
