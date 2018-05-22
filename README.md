@@ -43,7 +43,7 @@
 [如何观看(点击查看)](http://url.cn/5CL2Mjk)</br>
 [密码错误(点击解决)](http://url.cn/57JCRzH)</br>
 [安卓手机白屏问题(点击解决)](http://url.cn/55XFkFT)</br>
-[苹果手机PDF损坏(点击解决)](http://url.cn/5klYYsP)</br>
+[苹果手机PDF损坏(点击解决)](http://note.youdao.com/noteshare?id=a387b8a6fb29f94ec0bfee953d15158c)</br>
 [找回密码(点击查看)](http://www.12ii.net/order/query)
 
 ### 如果仍无法解决您的问题，请第一时间联系qq：**1260316364**
