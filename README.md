@@ -11,12 +11,9 @@
 ![套餐1](https://upload-images.jianshu.io/upload_images/12061232-4d3346c628af5023.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ## 资源地址(有密码)：
-#### 韩漫完结编号1-35:https://pan.baidu.com/s/1eHE9F_CjU7TuajtwwW5RYQ
-#### 韩漫完结编号36-68:https://pan.baidu.com/s/1aB-PoRs9-Sw6veVF6Olytg
+#### 韩漫完结链接:https://pan.baidu.com/s/1viGg8OTEDdLXgaSEozYqFA  密码:xzl4
 ***
-#### 韩漫连载编号1-5：https://pan.baidu.com/s/1hFx_B3SwcoNlbI52tCvnQw
-#### 韩漫连载编号6-10：https://pan.baidu.com/s/1fLfoPeIe0fMPQbPzhNFvnw
-#### 韩漫连载编号11-17:https://pan.baidu.com/s/18KEJO4DK6bB7Xz-LLucDBA
+#### 韩漫连载链接:https://pan.baidu.com/s/1_Q-xVPCyLevRI8VSPUVBXg  密码:qhfy
 ***
 
 #### 3d漫画：https://pan.baidu.com/s/1mj7EuAs
