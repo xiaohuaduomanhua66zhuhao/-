@@ -9,7 +9,7 @@
 ![套餐1](https://upload-images.jianshu.io/upload_images/12061232-4d3346c628af5023.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ## 资源地址(有密码)：
-#### 韩漫完结https://pan.baidu.com/s/1M-W-yKi1yH4nE7stU0jf1w
+#### 韩漫完结https://pan.baidu.com/s/1ODKNvDy6Zh3JsJw_Uuc72Q
 ***
 #### 韩漫连载https://pan.baidu.com/s/1xqG4UXAtRYhZzEi3kTCfMg
 
