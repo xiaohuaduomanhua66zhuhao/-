@@ -9,7 +9,8 @@
 ![套餐1](https://upload-images.jianshu.io/upload_images/12061232-4d3346c628af5023.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ## 资源地址(有密码)：
-#### 韩漫完结编号1-7：https://pan.baidu.com/s/1_MVJp6Ex0ZLQaP6SsXRnqQ
+#### 韩漫完结编号1-3：https://pan.baidu.com/s/1yRTF-fRQvOFZ6naaXvPZRA
+#### 韩漫完结编号4-7：https://pan.baidu.com/s/1gZurPsX3QEiW9BDUD9drOQ
 #### 韩漫完结编号8-15：https://pan.baidu.com/s/1OWNvu32ihGQ7JM218RAd-Q
 #### 韩漫完结编号16-40：https://pan.baidu.com/s/1g8gov7GnDJsM-PmwTH2CEA
 #### 韩漫完结编号41-45：https://pan.baidu.com/s/1OQPPRlW69M-lX-A9W_MrIw
