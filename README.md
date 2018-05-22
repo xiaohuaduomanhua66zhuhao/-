@@ -19,7 +19,9 @@
 
 #### 韩漫完结编号46-68：https://pan.baidu.com/s/1sk74720mPGPe5qbv8u3_iA
 ***
-#### 韩漫连载链接:https://pan.baidu.com/s/12aFeg_Plodc71pgw3cnUSQ  密码:7tvz
+#### 韩漫连载编号1-10：https://pan.baidu.com/s/1vBoVrof1qDTW4neZYg3stw
+#### 韩漫连载编号11-17：https://pan.baidu.com/s/1WgEzZHMgIuGo34imT0jP6g
+
 ***
 
 #### 3d漫画：https://pan.baidu.com/s/1mj7EuAs
