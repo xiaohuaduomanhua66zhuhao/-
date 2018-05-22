@@ -11,8 +11,9 @@
 ## 资源地址(有密码)：
 #### 韩漫完结编号1-15：https://pan.baidu.com/s/1co2sFrhm4tty7GiWQWP-kA
 #### 韩漫完结编号16-30：https://pan.baidu.com/s/1sZ98XW61KowARSbvHESqHw
-#### 韩漫完结31-45：https://pan.baidu.com/s/1GSKdcsc95W3GrnGTxVaqmQ
-#### 韩漫完结46-68：https://pan.baidu.com/s/1sk74720mPGPe5qbv8u3_iA
+#### 韩漫完结编号31-40：https://pan.baidu.com/s/1RZQ-h8AAYevCMCczB5_BCA
+#### 韩漫完结编号41-45：https://pan.baidu.com/s/1wmDRXMPn2FJiVpTo2ryxpQ
+#### 韩漫完结编号46-68：https://pan.baidu.com/s/1sk74720mPGPe5qbv8u3_iA
 ***
 #### 韩漫连载链接:https://pan.baidu.com/s/12aFeg_Plodc71pgw3cnUSQ  密码:7tvz
 ***
