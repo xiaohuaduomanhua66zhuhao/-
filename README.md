@@ -11,8 +11,7 @@
 ## 资源地址(有密码)：
 #### 韩漫完结编号1：https://pan.baidu.com/s/1wvtdLAaNZf-6h096r2EEoQ
 #### 韩漫完结编号2-3：https://pan.baidu.com/s/1ZN0gxhGUKfPXYzex6WoZrQ
-#### 韩漫完结编号4-7：https://pan.baidu.com/s/1gZurPsX3QEiW9BDUD9drOQ
-#### 韩漫完结编号8-15：https://pan.baidu.com/s/1OWNvu32ihGQ7JM218RAd-Q
+#### 韩漫完结编号4-15：https://pan.baidu.com/s/1V9P9b6r6enObN1S9p-Ac1A
 #### 韩漫完结编号16-40：https://pan.baidu.com/s/1g8gov7GnDJsM-PmwTH2CEA
 #### 韩漫完结编号41-45：https://pan.baidu.com/s/1OQPPRlW69M-lX-A9W_MrIw
 #### 韩漫完结编号46-68：https://pan.baidu.com/s/1sk74720mPGPe5qbv8u3_iA
