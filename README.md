@@ -12,7 +12,7 @@
 
 ## 资源地址(有密码)：
 #### 韩漫完结1-15：https://pan.baidu.com/s/1co2sFrhm4tty7GiWQWP-kA
-#### 韩漫完结1-15：https://pan.baidu.com/s/1sZ98XW61KowARSbvHESqHw
+#### 韩漫完结15-30：https://pan.baidu.com/s/1sZ98XW61KowARSbvHESqHw
 #### 韩漫完结31-68：https://pan.baidu.com/s/1WSwjot2lB-KoEAwYdmcBxA
 ***
 #### 韩漫连载链接:https://pan.baidu.com/s/12aFeg_Plodc71pgw3cnUSQ  密码:7tvz
