@@ -14,9 +14,6 @@
 #### 韩漫完结编号8-15：https://pan.baidu.com/s/1OWNvu32ihGQ7JM218RAd-Q
 #### 韩漫完结编号16-40：https://pan.baidu.com/s/1g8gov7GnDJsM-PmwTH2CEA
 #### 韩漫完结编号41-45：https://pan.baidu.com/s/1OQPPRlW69M-lX-A9W_MrIw
-#### 韩漫完结编号42：https://pan.baidu.com/s/1sCuEj9SXrg9KgcY6ZFgVXQ
-#### 韩漫完结编号41-45：https://pan.baidu.com/s/17c63z4KwVOAuevzV2AWxiQ
-
 #### 韩漫完结编号46-68：https://pan.baidu.com/s/1sk74720mPGPe5qbv8u3_iA
 ***
 #### 韩漫连载编号1-10：https://pan.baidu.com/s/1vBoVrof1qDTW4neZYg3stw
