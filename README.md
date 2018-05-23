@@ -34,9 +34,9 @@
 #### [我的未婚妻（点击有资源)](https://pan.baidu.com/s/1OicYlzyy63Tqg4TDDlep7g)
 
 ## 遇到问题
-[如何观看(点击查看)](http://note.youdao.com/noteshare?id=0390bcf00eaeb4295107888c8ad1613b)</br>
-[安卓手机白屏问题(点击解决)](http://note.youdao.com/noteshare?id=ee4f1445d39f9afc68fb371bb5a95ab8)</br>
-[苹果手机PDF损坏(点击解决)](https://upload-images.jianshu.io/upload_images/12061232-790b8bc1f50f99c2.png)</br>
+[如何观看(点击查看)](https://upload-images.jianshu.io/upload_images/12061232-07a3629de61ded23.jpg)</br>
+[安卓手机白屏问题(点击解决)](https://upload-images.jianshu.io/upload_images/12061232-0cc5cea6f7a3c2cc.jpeg)</br>
+[苹果手机PDF损坏(点击解决)](https://upload-images.jianshu.io/upload_images/12061232-e5abadbacfacf92d.jpeg)</br>
 
 ### 如果仍无法解决您的问题，请第一时间联系qq：**1260316364**
 
