@@ -9,9 +9,9 @@
 ![套餐1](https://upload-images.jianshu.io/upload_images/12061232-4d3346c628af5023.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 ## 资源地址(有密码)：
-#### 韩漫完结：https://pan.baidu.com/s/1ogzzMIvRgbD495Ye0mngYw
+#### 韩漫完结：https://pan.baidu.com/s/1H4KGlRR3jIvRd2WcyxdWPA
 ***
-#### 韩漫连载https://pan.baidu.com/s/1xqG4UXAtRYhZzEi3kTCfMg
+#### 韩漫连载https://pan.baidu.com/s/1FqdwygFT2C5a6lYmWvFX3w
 
 ***
 
